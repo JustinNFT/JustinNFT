@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JustinNFT
-- 👀 I’m interested in 3D Animation/NFTs any many more.
+- 👀 I’m interested in 3D Animation/NFTs and many more.
 - 🌱 I’m currently learning all about it.
 - 💞️ I’m looking to collaborate on any ideea you got!
 - 📫 How to reach me <--- 
